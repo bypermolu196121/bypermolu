@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
