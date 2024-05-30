@@ -1,1 +1,1 @@
-The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
