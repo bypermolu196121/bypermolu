@@ -1,1 +1,1 @@
-Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
+Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
