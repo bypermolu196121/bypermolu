@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
