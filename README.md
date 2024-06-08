@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, hosted two FIFA World Cup finals and was the venue for the opening and closing ceremonies of the 2016 Rio Olympics.
+Cristiano Ronaldo is the all-time leading goal scorer in UEFA Champions League history, with over 130 goals to his name.
