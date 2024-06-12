@@ -1,1 +1,1 @@
-Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
