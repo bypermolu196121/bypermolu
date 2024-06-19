@@ -1,1 +1,1 @@
-Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
+The popularity and visibility of women's soccer have grown significantly in recent years, with increased media coverage and investment from governing bodies and sponsors.
