@@ -1,1 +1,1 @@
-Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
+La Masia, the youth academy of FC Barcelona, has produced numerous world-class players, including Lionel Messi, Andres Iniesta, and Xavi Hernandez.
