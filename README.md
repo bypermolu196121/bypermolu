@@ -1,1 +1,1 @@
-La Masia, the youth academy of FC Barcelona, has produced numerous world-class players, including Lionel Messi, Andres Iniesta, and Xavi Hernandez.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
