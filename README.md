@@ -1,1 +1,1 @@
-The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
+The popularity and visibility of women's soccer have grown significantly in recent years, with increased media coverage and investment from governing bodies and sponsors.
