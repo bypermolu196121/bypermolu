@@ -1,1 +1,1 @@
-Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
+Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
