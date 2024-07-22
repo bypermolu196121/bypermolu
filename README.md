@@ -1,1 +1,1 @@
-Soccer has a unique ability to unite people from diverse backgrounds and cultures, fostering a sense of community and belonging among fans worldwide.
+The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
