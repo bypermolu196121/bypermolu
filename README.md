@@ -1,1 +1,1 @@
-The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
+The popularity and visibility of women's soccer have grown significantly in recent years, with increased media coverage and investment from governing bodies and sponsors.
