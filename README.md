@@ -1,1 +1,1 @@
-Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
+The 1999 UEFA Champions League final between Manchester United and Bayern Munich saw United score two goals in injury time to win the treble.
