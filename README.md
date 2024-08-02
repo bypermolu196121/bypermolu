@@ -1,1 +1,1 @@
-The 1999 UEFA Champions League final between Manchester United and Bayern Munich saw United score two goals in injury time to win the treble.
+Franz Beckenbauer, nicknamed "Der Kaiser," won the FIFA World Cup as both a player (1974) and a manager (1990) with West Germany.
